@@ -1,0 +1,1 @@
+# bata_shoe.index
